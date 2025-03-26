@@ -14,7 +14,7 @@
 
 😄 Pronouns: he him his
 
-⚡ Fun fact: I'm really a drummer. This is just my day gig.
+🥁 Fun fact: I'm really a drummer. This is just my day gig.
 
 <!---
 pnuw-ibm/pnuw-ibm is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
